@@ -12,4 +12,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... [Brand Website](http://wizard1.tech)
 - 😄 Pronouns: ...He/Him
 - ⚡ Fun fact: ... I can learn anything I love
--->
