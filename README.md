@@ -6,6 +6,6 @@
 - 👯 I’m looking to collaborate on ... Mobile Projects
 - 🤔 I’m looking for help with ...Internship
 - 💬 Ask me about ...Anything
-- 📫 How to reach me: ... [Brand Website](http://wizard1.tech)
+- 📫 How to reach me: ... [Brand Website](http://wizardone.tech)
 - 😄 Pronouns: ...He/Him
 - ⚡ Fun fact: ... I love tech
